@@ -13,7 +13,7 @@ Ce jeu m'interpelle beaucoup, car il mélange jeu d'horreur avec jeu "détective
 Ce jeu m'intéresse, car ils'agit d'un jeu de pirate et a un aspect de farming pour augmenter de niveau auprès des différentes factions du jeu. Le but du jeu étant de faire des quêtes, je suis assez content de ce jeu.
 
 [### Lien 3 ](https://store.steampowered.com/app/990080/Hogwarts_Legacy_LHritage_de_Poudlard/)
-Le jeu m'intéresse, car je suis fan d'Harry Potter et ce jeu rejoint carrément le thème car c'est exactement le même décor. 
+Le jeu m'intéresse, car je suis fan d'Harry Potter et ce jeu rejoint carrément le thème car c'est exactement le même décor. Les quêtes pour obtenir les sortilèges sont assez bien et le jeu ùe fait replonger dans mes souvenirs.
 
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
