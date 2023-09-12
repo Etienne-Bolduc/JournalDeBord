@@ -14,7 +14,7 @@ Peut-être être un employé chez Best Buy, mais je n'ai pas d'autres idée.
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Travailler en informatique. Peut-être plus dans le domaine de graphismes d'images.
 
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire. 
