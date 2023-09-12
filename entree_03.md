@@ -8,7 +8,7 @@ Je suis un jeune qui aime jouer aux jeux vidéos. J'aime beaucoup tout ce qui es
 J'aime bien tout ce qui est en rapport avec avec le numérique, digital, etc. Sinon, j'aime beaucoup tout ce qui est en rapport aux jeux vidéos et les images en général. 
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Peut-être être un employé chez Best Buy et je n'ai pas d'autres idée.
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
