@@ -11,7 +11,7 @@ J'aime bien tout ce qui est en rapport avec avec le numérique, digital, etc. Si
 Peut-être être un employé chez Best Buy, mais je n'ai pas d'autres idée.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+Personnellement, je ne m'identifie pas trop à qui ni à quoi que ce soit.
 
 ### Dans 5 ans
 Travailler en informatique. Peut-être plus dans le domaine de graphismes d'images.
