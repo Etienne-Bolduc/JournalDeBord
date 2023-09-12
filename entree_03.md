@@ -17,4 +17,4 @@ Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez p
 Travailler en informatique. Peut-être plus dans le domaine de graphismes d'images.
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+J'aimerais faire des streams, mais aussi avoir un travail à côté pour sécuriser les finances. Et aussi faire ce que j'aime.
