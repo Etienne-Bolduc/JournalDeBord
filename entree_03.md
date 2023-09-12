@@ -2,7 +2,7 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
+Je suis un jeune qui aime jouer aux jeux vidéos. J'aime beaucoup tous ce qui est informatique et j'aime beaucoup travailler à l'ordinateur. J'aime aussi écouter et faire de la musique quand je ne sais pas quoi faire. Je chante aussi beaucoup chez moi dans mes temps libres. 
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
