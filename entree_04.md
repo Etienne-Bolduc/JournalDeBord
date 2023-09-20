@@ -2,8 +2,8 @@
 ## Décrire 5 emplois du domaine du multimédia
 Choisissez des emplois qui pourraient vous intéresser. 
 
-### Emploi 1 - Identification
-Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
+Graphisme en général
+Je fais déjà beaucoup d'éditage de photos et de vidéos, mais je reste encore un débutant, car j'ai débuté il n'y a pas si longtemps que ça. Selon moi, les gens travaillent plutôt dans des établissements spécialisés dasn la direction précise de quel domaine du graphiseme auquel ils veulent aller.    
 
 ### Emploi 2 - Identification
 4 à 5 lignes
