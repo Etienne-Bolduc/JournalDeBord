@@ -3,6 +3,7 @@
 Choisissez des emplois qui pourraient vous intéresser. 
 
 Graphisme en général
+
 Je fais déjà beaucoup d'éditage de photos et de vidéos, mais je reste encore un débutant, car j'ai débuté il n'y a pas si longtemps que ça. Selon moi, les gens travaillent plutôt dans des établissements spécialisés dasn la direction précise de quel domaine du graphiseme auquel ils veulent aller.    
 
 ### Emploi 2 - Identification
