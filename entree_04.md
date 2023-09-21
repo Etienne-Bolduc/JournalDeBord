@@ -15,7 +15,7 @@ Ce qui m'intéresse, c'est d'apprendre plein de trucs liés à la programmation,
 ### Emploi 4 - Monteur de vidéos
 J'aime bien savoir comment bien monter (ou edit) une vidéo. Je me pratique quand même un peu, mais plus trop en ce moment, avec l'école. Je suis encore un débutant dans le montage de vidéo, mais j'ai quand même quelques bases. Je ne sais pas si les gens qui en ont fait leur métier sont passés par des écoles ou non, mais j'imagine que oui. Les seules "forces" que je pense qu'il faut avoir, c'est avoir une bonne ouïe pour entendre tous les sons, bien regarder les moments de la vidéo pour savoir quelles sécances de la vidéo seraient à enlever, pour rendre la vidéo bien et intéressante. Sinon, les commandes de base comme copier et coller. Ensuite, il faut une touche de varation dans les effets à mettre dans la vidéo pour éviter que les spectateurs se lassent de la vidéo. La pratique aide toujours.
 
-### Emploi 5 - Identification
-4 à 5 lignes
+### Emploi 5 - Photographe
+Je m'intéresse beaucoup à la photographie. Autres le fait que dans mes cours je fais de la photographie, j'aime bien prendre des photos, surtout quand je suis en vacances. Quand je suis en vacance, je prends énormément de photos des paysages environnants. 
 
 
