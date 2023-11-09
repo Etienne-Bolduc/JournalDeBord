@@ -1,4 +1,4 @@
-# Entrée 6
+ # Entrée 6
 ## Analyse critique d'une oeuvre
 
 L’objectif de cet exercice est de développer une opinion sur une œuvre multimédia. Pour l’analyse, choisissez l’une des œuvres que nous avons visitées. 
@@ -11,4 +11,4 @@ C'est un escape game dont le but est de trouver, avant une autre équipe de mine
 ### Opinion
 Cet escape était très bien et je recommande de le faire. Ce qui m'a le plus marqué, c'est le fait que de taper sur les plaques de métal avec le marteau faisait abaisser les plaques de ciment qui révèlaient les cristeaux. Je trouve cette mécanique très bien réalisé.
 ### Analyse critique
-Qu'est-ce qui pourrait être modifié dans cette oeuvre? 
+Le seul truc que je pense qui serait à changer c'est la plaque de bois qui nous donne les symbole pour tourné le tonneaux, car ce n'est pas sensé faire peur et le bruit de l'impact quand elle cogne contre la pierre fait un gros bruit qui fait sursauté.
