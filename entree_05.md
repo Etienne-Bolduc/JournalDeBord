@@ -11,7 +11,7 @@ Je dois travailler ma mémoire encore plus. Je devrais prendre plus mon temps po
 J'ai été rapide car je connaissais la plupart des réposes.
 
 ### Outils et ressources
-Quels outils et ressources avez-vous utilisés pour la préparation à l'examen?
+Je me suis beaucoup remémoré des notions et j'ai fais mes technique de respiration pour ne pas stresser.
 
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
