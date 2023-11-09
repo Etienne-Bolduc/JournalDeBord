@@ -14,5 +14,5 @@ J'ai été rapide car je connaissais la plupart des réposes.
 Je me suis beaucoup remémoré des notions et j'ai fais mes technique de respiration pour ne pas stresser.
 
 ### Difficultés
-Quelles sont les difficultés que vous avez rencontrées pendant l'examen?
+Majoritairement le stress. J'ai aussi eu quelques trou de mémoire et des oublies pendant quelques instants
 
